@@ -12,6 +12,24 @@ Forschung zu Medienmanipulation in Bezug auf Russland und die AfD-Partei, einsch
 - Alben: Stokkholm (2018), 5 und 30 (2016), usw.
 - Liedtexte gesammelt: 17 Lieder in /research/artists/TAHA/lyrics/
 
+### KXXMA (KXXMA)
+- Echter Name: KXXMA
+- Geboren: in Schwerin, Deutschland
+- Genre: Elektronische Musik, Hardstyle/Hardcore
+- Forschungszusammenfassung verfügbar.
+
+### Krijo Stalka (Krijo Stalka)
+- Echter Name: Krijo Stalka
+- Geboren: in Deutschland
+- Alben: Trust No 1 (2011), Endstation (2017), etc.
+- Forschungszusammenfassung verfügbar.
+
+### Olexesh (Olexesh)
+- Echter Name: Oleksij Kossarew
+- Geboren: in der Ukraine, aufgewachsen in Deutschland (Darmstadt)
+- Alben: Verschiedene Alben
+- Forschungszusammenfassung verfügbar.
+
 ### Herr Kuchen (Herr Kuchen)
 - Echter Name: Herr Kuchen
 - Geboren: in Deutschland

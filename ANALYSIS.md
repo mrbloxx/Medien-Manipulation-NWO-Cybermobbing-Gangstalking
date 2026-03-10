@@ -31,5 +31,48 @@ Basierend auf gesammelten Liedtexten (z.B. Valentines, Mufasa, Thang For You, Co
 - **Identitätsprobleme**: Persönliche Kämpfe, Drogenmissbrauch und Identitätskonflikte, z.B. in Court Dates.
 - **Impulsivität**: Häufige Gewaltakte, sexuelles Verhalten und Drogenkonsum, z.B. in No Apologies und Valentines.
 
+## Analyse der Liedtexte von Herr Kuchen (Herr Kuchen)
+
+Basierend auf gesammelten Liedtexten (z.B. Roter Faden):
+
+### Anzeichen für Psychose
+- **Wahnvorstellungen/Paranoia**: Texte zeigen Aggression und Misstrauen, z.B. Gewaltandrohungen.
+- **Desorganisiertes Denken**: Liedtexte springen zwischen Themen wie Gewalt, Drogen und Beziehungen, was auf fragmentierte Denkprozesse hinweist.
+
+### Anzeichen für Borderline-Persönlichkeitsstörung
+- **Emotionale Instabilität**: Schwankungen zwischen Aggression und Selbstreflexion.
+- **Angst vor Verlassenheit**: Bezüge zu Beziehungsproblemen und Isolation.
+- **Impulsivität**: Häufige Gewaltakte und Drogenkonsum.
+
+## Analyse der Liedtexte von Krijo Stalka (Krijo Stalka)
+
+Basierend auf gesammelten Liedtexten (z.B. Im Rausch der Tiefe):
+
+### Anzeichen für Psychose
+- **Wahnvorstellungen/Paranoia**: Bezüge zu Tod, Deja-vu, Amoklauf.
+- **Desorganisiertes Denken**: Fragmentierte Erzählungen.
+
+### Anzeichen für Borderline-Persönlichkeitsstörung
+- **Emotionale Instabilität**: Themen von Rausch, Tod, Isolation.
+- **Angst vor Verlassenheit**: Bezüge zu Verlust und Tod.
+- **Impulsivität**: Drogenkonsum, Gewaltandrohungen.
+
+## Analyse der Liedtexte von KXXMA (KXXMA)
+
+Keine Liedtexte verfügbar, da es sich um instrumentale elektronische Musik handelt. Analyse basierend auf thematischen Elementen nicht möglich.
+
+## Analyse der Liedtexte von Olexesh (Olexesh)
+
+Basierend auf gesammelten Liedtexten (z.B. Purple Haze):
+
+### Anzeichen für Psychose
+- **Wahnvorstellungen/Paranoia**: Keine direkten Hinweise, aber Themen von Reichtum und Traum könnten übertrieben wirken.
+- **Desorganisiertes Denken**: Fragmentierte Beschreibungen von Luxus und Drogen.
+
+### Anzeichen für Borderline-Persönlichkeitsstörung
+- **Emotionale Instabilität**: Wechsel zwischen Euphorie und Fokus auf Erfolg.
+- **Angst vor Verlassenheit**: Bezüge zu Beziehungen und Loyalität.
+- **Impulsivität**: Drogenkonsum, Risikoverhalten.
+
 ## Schlussfolgerung
 Die Liedtexte erkunden oft Themen wie Depression, Wut, Drogenkonsum und Beziehungsschwierigkeiten, die in Rap-Musik üblich sind. Während einige Elemente mit Symptomen von Psychose oder BPD übereinstimmen könnten, ist dies spekulativ und nicht diagnostisch. Für jegliche realen Bedenken wird eine weitere professionelle Analyse empfohlen.
