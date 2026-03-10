@@ -12,10 +12,10 @@ Forschung zu Medienmanipulation in Bezug auf Russland und die AfD-Partei, einsch
 - Alben: Stokkholm (2018), 5 und 30 (2016), usw.
 - Liedtexte gesammelt: 17 Lieder in /research/artists/TAHA/lyrics/
 
-### Skepsiz
-- Echter Name: Sascha Reimann
-- Geboren: 1988 in Berlin, Deutschland
-- Alben: PUNK PARADOX! (2023), 2000 Grad (2022), FALTER (2022), VON ANFANG AN (2026)
+### RYLO (Rylo Rodriguez)
+- Echter Name: Ryan Preston Adams
+- Geboren: in Mobile, Alabama, USA
+- Alben: Been One (2023), Sorry Four The Delay (2023), G.I.H.F. (2020), Before the Album (2019), Gift From the Ghetto (2019), Rogerville (2019)
 - Forschungszusammenfassung verfügbar.
 
 ## Analyse
